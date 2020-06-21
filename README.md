@@ -1,1 +1,1 @@
-# bekbekov.github.io
+# mogo.github.io
